@@ -1,482 +1,231 @@
-# How to rent out an inherited property
+# What Home Repairs Give You The Most Value… 
+### … and how to repair your house to sell fast! 
 
 
 
-Alright so you’re excited about being a new landlord. 
 
+## Want to sell your property for top dollar? 
 
 
-You just inherited property… or you’re about while your property is in Probate (see our homeowners guide on probate)... 
 
 
+## House in shambles but you want to sell?
 
-We’re going to dive into tips, benefits and warnings of being a new landlord — whether your inherited property is in Florida, Texas, California, or anywhere across the country.… 
 
 
 
-## Why Rent a property? 
+Well, Remedy Home Buyers is going to give you the low-down on making repairs and remodels to help you sell your property for the highest dollar possible. Because truth be told… there are some “remodel investments” that just don’t give any money back. Many homeowners think that any remodel update increases the value of your home… not true. And after years of experimenting and remodeling ourselves,  we’ve written this guide to help you make the right decision in the realm of “remodeling and repairs”.
 
 
 
-If the property in question is still in Probate and you have the cash to pay for the process (if you don’t you might have to consider selling to pay for it), then renting is a very viable option if you’re up to it. 
+### Here we’ll cover: 
 
 
 
-### Mainly for three reasons:
+1. Do you even need to remodel? 
+2. What remodel items give you $$$ back
+3. How and where to start -- and mistakes that can cost you $$$
+4. How to sell without ever swinging a hammer, while still getting top dollar
 
 
 
-1. A second stream of income
+So, let’s get started… 
 
 
-2. Possible appreciation and wealth
 
+## Do you even need to remodel? 
 
+There are times and places when you just don’t even need to remodel (or do much besides paint). 
 
-3. Pass down an asset
 
 
+And it narrows down to 2 factors: 
 
-Let’s dive into each one of these and see if it’s worth it for you
 
 
+1. Market cycle
+2. Condition of your house in comparison to the others
 
-## Is there any Cash Flow from renting out? 
 
 
+There will be “high years” and there will be “low years”. During “high years”, there are TONS of people shopping for homes, and buying everything no matter what they look like. But during “low times” there are very few buyers and they are picky and only choose the “best ones”.
 
-A common mistake people make is thinking: 
 
+Let’s give some scenarios to help… 
 
 
-Cash flow = Rent income - Mortgage 
 
+Let’s say it’s a “high time” in the economy. And you have a basic tract home in a desirable neighborhood. And people are buying up properties around your town like crazy. And your house is clean, maybe just needs some paint but that’s all. The kitchen and bathrooms are originals from 2000. In that case, you DON’T need to remodel your house. Remodel probably won’t raise the price of your home one bit. 
 
 
-This is far from the truth. 
 
+### Let’s look at a second scenario: 
 
 
-The real formula for cash flow is: 
 
+It’s a stable time in the economy. But your house doesn’t look too good; The kids left big scratches in the paint, they drew on the walls, your kitchen and bathrooms are from 1996 or later, and you’ve got some chipped tile. 
 
 
-Cash Flow = 
 
+You take a look around your neighborhood and the houses that are like yours (in size and model), are recently updated and selling for $300,000 (for example). But the houses that need some work… are selling for $240,00 (if you need help figuring this out, you can call a local agent, OR call us at (909) 328-6337). 
 
 
-Rent Income - Mortgage - Maintenance - Capital expenditure - Property management
 
+A basic cosmetic remodel won’t be over $60,000 more like $25,000+ depending on the size and extent of the damage. So putting in some money, time, and elbow grease can give you some money back. 
 
 
-That’s the true formula for cash flow. 
 
 
 
-And MANY new landlords make this mistake of buying property and then end up being completely BROKE after something like a water heater breaks. 
 
+## When do you absolutely need a remodel no matter the market?
 
 
-Then the property starts to deteriorate. 
 
 
 
-The costs start piling up.
 
+### If you have FUNCTIONAL problems in the house, like: 
 
 
-Tenants move out because nothing is being fixed. 
 
+- Odors
+- Broken floors
+- Non-working appliances, HVAC, electrical, plumbing, etc. 
+- Foundational issues
 
 
-This is 90% of most landlord situations. 
 
+Sometimes this could be a house destroyed by tenants (if you have tenants and you’re looking to sell, make sure you check out our article “how to sell fast with tenants”
 
 
-All because they were mistaken in believing that they actually have cash flow… 
+Sometimes this could be a vacant house that’s been trashed by squatters, or sitting, “rotting” away. If so, check out our article on “How to sell a vacant house for top dollar”
 
 
+It’s Much harder to sell houses “as-is” with functional problems because the only buyers willing to take those are investors. 
 
-When they don’t. 
 
+## What items give you $$$ back
 
 
-So rule #1: 
 
+When remodeling, some items are just a pure waste of time and money; things that do not raise the value of your property one bit. 
 
 
-Make sure there is ENOUGH cash flow. 
 
+But there are others that you should be paying attention to, and can potentially lift the value and desirability of your home. 
 
 
-Rule #2… 
 
+### Let’s start with a list in order of importance: 
 
-## Properly budget for maintenance and expenditures. 
 
 
+1. Broken “functionality” items (Lift value and decrease time spent on the market — If you have broken: HVAC, electrical/plumbing problems, foundational issues, Leaky roof, broken fence/gate, broken doors/windows, broken floors (chipped, cracked)… you need to get these items fixed ASAP. Because the only buyers will be investors. 
 
-### What type of property maintenance and expenditures?  
 
+2. Bathrooms (lift value and decrease time spent on the market) — This should be top on your list. They bring up the resale value and they say you can actually get a 40% return on your investment. The average cost of a DIY bathroom remodel ranges from $2,000-$10,000. 
 
 
-There are yearly property maintenance you have to do (we’ll list them below), and there are big ticket items you must save for. 
+3. Kitchens (lift value and decrease time spent on the market) — This is the first thing buyers see, and it’s the one thing that buyers will pay a premium for if the kitchen is upgraded. Some things to upgrade are luxury appliances, quartz countertops, backsplash, new floor tile if it’s chipped (or just deeply cleaned if it’s really grimy), and new cabinets if they’re broken or extremely outdated (or just fresh paint if they’re decent)… The average cost of a DIY full kitchen remodel ranges from $5,000 - $50,000
 
 
+4. Exterior (Decrease time spent on the market but won’t do too much to raise the value) — Curbside appeal is what attracts good buyers. When buyers are scrolling through listings, they make their decision on whether or not the front looks good. Here are some items that can give your curbside look a “facelift”: fresh paint, landscape (trimming bushes, getting rid of dead plants and leaves, getting the grass green), new garage door (if it’s outdated (the old “death trap” doors buyers steer away from), or just give a nice cleaning and replace windows if its a newer door), Sidings (if they can’t be painted over)... the average total DIY cost of all these can range from $3,000-$8,000 for a 1,500 square foot house.
 
-Here’s a list of yearly property maintenance that cost you $$ out of pocket: 
 
+5. Interior (Decrease time spent on the market and can potentially give you some lift in value) — This may or may not be needed (the first three tasks are TOP priority). But when a buyer walks through your house, what will they see? Clutter? Bubbled vinyl or laminate flooring? Old ugly paint? Old furniture? If you said yes to any of those, you might need an update. And the total DIY cost of all these can range from $4,000 (for only paint) to $12,000 for a 1,500 sq ft house. 
 
 
-1. Lighting: You’ll get lots of calls from tenants who can’t replace a light bulb (face in palm)… 
+Not a long list…
 
 
 
-2. Gutter Cleaning: Ensure gutters and downspouts are clear of debris to prevent water damage and foundation problems.
+But it gives you an idea of where to start. Alright on to the next items… 
 
 
 
-3. Roof Inspection: Check for loose or missing shingles, leaks, or any other damage that may lead to bigger problems down the line.
+## How and where to start
 
 
 
-4. Landscaping: Regular mowing, pruning of shrubs, tree trimming, and refreshing mulch. Additionally, consider seasonal tasks like leaf removal in the fall.
+Now that you have an idea of what you need to repair… 
 
 
 
-5. Pest Control: Schedule periodic inspections for termites, rodents, and other pests. Even if no problems are visible, preventative treatments can be worthwhile.
+Let's figure out if you’re going to DIY or hire someone. Of course, this is 100% up to you and your abilities, time, and resources. If you’re skilled, DIY can save you a LOAD of money. The quotes I gave you above are rough estimates with the lower ranges being DIY prices; meaning the lower numbers are material only. 
 
 
 
-6. HVAC Maintenance: Change air filters regularly and have the system serviced at least once a year to ensure efficiency and longevity.
+But if you hire a contractor (and we’ll talk about how to hire one in a bit), you can double the amount you spend on the material. 
 
 
 
-7. Plumbing: Often you get plumbing issues like leaky faucets that have to be corrected. Look for any slow drains, leaky faucets, or toilets that run constantly. Addressing these early can prevent more expensive repairs later.
-8.. Safety Checks:* Regularly test smoke detectors and carbon monoxide detectors, replacing batteries as needed. Ensure fire extinguishers are in working condition
+How to hire a contractor
 
 
 
-9. Appliance Maintenance: Often, washers, dryers, water heaters, etc break down. Clean and service appliances like the refrigerator, dishwasher, oven, and washing machines to extend their lifespan.
+### There are 2 types: subcontractors and general contractors. 
 
 
 
+A subcontractor is someone like a painter, an electrician, or a plumber; someone you hire to do one job, like fixing all the GFCI outlets in your house, for example. 
 
 
 
-Budgeting for these tasks ensures you can address issues before they escalate into more significant problems, saving money in the long run. Plus, a well-maintained property is more attractive to current and potential tenants.
+A general contractor is someone who does ALL the jobs needed for your house. So if you have a “laundry” list of big repairs items like Bathrooms, floors, and paint… Then the general contractor will handle it all for you. He/She usually knows subcontractors. He’ll give you one big quote to complete the entire remodeling job. 
 
 
 
-### List of capital expenditures: 
+### Which to choose? 
 
 
 
-Capital expenditures (CapEx) are the large, infrequent expenses that landlords should plan for as they relate to the overall improvement or maintenance of the property. These are not your typical monthly or annual operational costs but are essential for keeping the property in its best condition over the long term.
+A general contractor will be more expensive…. But it’s very “hands-off”. So our recommendation is if it’s a very lengthy “to-do” list with complicated jobs, and you lack time, then it’s best to get a general contractor. If it’s only 1-3 minor jobs, then you can get away with finding your own subcontractors. 
 
 
 
-These things below are unavoidable. 
+### 2 Words of warning: 
 
 
 
-They WILL happen sooner or later and they are PRICEY (A roof is at least $10,000). 
+1. DO hire a licensed contractor…  Someone who is licensed also has insurance for their business. Someone who’s NOT licensed and gets hurt while working on your property can sue you.
 
 
+2. DO tell your insurance about your remodel BEFORE you start… If anything happens (like a fire for example) to your home while under construction, your insurance WILL NOT cover the damage because you didn’t alert them about the work you were doing to the house. Some may raise the insurance just a tiny bit only WHILE you’re working on the house… but it’s worth the small cost.  Because you can’t predict accidents. And if it does happen, you won’t have the damage paid for by your insurance.
 
-### Here's a list of capital expenditures landlords should budget for:
 
+## A faster way to sell without swinging a hammer while still getting top dollar? 
 
 
-1. Roof Replacement: Roofs don't last forever. Depending on the material used, you might need to replace it every 20-30 years, sometimes sooner if there's significant damage.
 
 
 
-2. Window Replacement: Older windows might need replacing to improve energy efficiency and aesthetics.
 
+And if you want to skip all that time and money on remodeling but STILL get a top-of-market offer that’s fair based on the current value of your house… 
 
 
-3. Exterior Siding or Painting: Whether it's replacing siding or repainting the exterior, it's an investment that can both protect and rejuvenate the appearance of a property.
 
 
 
-4. HVAC Systems: Furnaces, air conditioning units, and other HVAC components have a finite lifespan, typically around 10-15 years.
 
 
 
-5. Water Heater Replacement: Most water heaters last between 8-12 years, so you'll need to replace them occasionally.
 
+You can always give us a call: (909) 328-6337
 
 
-6. Plumbing and Electrical Systems: Overhauls or major updates might be needed, especially in older properties that don't meet current codes or standards.
 
+We give fair offers based on current values. 
 
 
-7. Flooring Replacement: Whether it's the wear and tear on carpets or damage to hardwood/tile, at some point, you might need a full flooring update.
 
+### Dial us or text me at: (909) 328-6337
 
 
-8. Kitchen Renovations: This could include new countertops, cabinets, sinks, or a complete redesign to modernize the space.
+### And we’ll be happy to assist you with your situation! 
 
 
 
-9. Bathroom Renovations: Updating fixtures, tiles, showers, and tubs can enhance property value and appeal.
-
-
-
-10. Appliance Replacement: Refrigerators, stoves, dishwashers, and other major appliances will eventually need to be replaced.
-
-
-
-11. Foundation Repairs: Issues like settling or cracking can sometimes require significant repairs to ensure the structural integrity of the property.
-
-
-
-13. Fencing: If the property has fencing, it might need repairs or total replacement after many years of weathering.
-
-
-
-16. **Septic System or Sewer Line Replacement:** If the property isn't connected to a public sewer, septic systems might need major repairs or replacements. Similarly, sewer lines can become damaged or clogged.
-
-
-
-When planning for capital expenditures, it's crucial for landlords to set aside funds regularly. This proactive approach ensures that they're financially prepared for these inevitable expenses, helping maintain the property's value and the comfort of its tenants.
-
-
-
-Getting good Property Management. 
-
-
-
-Vacancies will happen (another “budget” you should set aside for -- imagine 2-3 months of having to pay for mortgage out of pocket). 
-
-
-
-A good property manager (PM) and take the headache off your plate. 
-
-
-
-The average cost of a PM: 
-
-
-
-5-10% of rental income
-
-
-
-## Managing a rental yourself
-
-
-
-Because most landlords don’t have enough cash flow to pay for a PM, they’ll result in managing the property themselves. 
-
-
-
-Unfortunately this is not an ideal route if you want a rental property to be “handoff”. 
-
-
-
-Many professional investors create their own “property management” companies to manage all their properties. They have the volume of real estate where it makes sense. 
-
-
-
-### Here’s a list of things to consider when managing your own property. 
-
-
-
-1. Proper Legal Contracts: Essential for protecting both the landlord and tenant. This includes a clear and detailed lease agreement, clauses for renewals, and any other relevant contracts.
-
-
-
-2. Property Maintenance Schedule: Regular checks on the property, from annual inspections to seasonal maintenance tasks like gutter cleaning or HVAC servicing.
-
-
-
-3. Rental Deposit Clause: Clearly outline the conditions for security deposit collection, holding, deductions, and returns.
-
-
-
-4. Cleaning Company: Having a reputable cleaning company on standby for turnovers between tenants or for regular deep cleans can be invaluable.
-
-
-
-5. Reliable Network of Contractors: This includes plumbers, electricians, handymen, landscapers, etc., who can attend to issues promptly.
-
-
-
-6. Emergency Contact List: A list of essential contacts for emergencies, including local police, fire department, emergency maintenance services, etc.
-
-
-
-7. Tenant Screening Process: A comprehensive system to vet potential tenants, including background checks, credit reports, and reference checks.
-
-
-
-8. Property Insurance: Ensure that the property has adequate coverage against damage, liability, and potential rental income loss.
-
-
-
-9. Knowledge of Local Laws: Familiarize yourself with local landlord-tenant laws, rental regulations, and fair housing acts to avoid potential legal issues.
-
-
-
-10. Accounting System: A system (software or manual) to track rental income, expenses, and other financial aspects related to the property.
-
-
-
-11. Rent Collection System: Whether it's through online payments, bank transfers, or checks, have a consistent and reliable method for collecting rent.
-
-
-
-12. Eviction Procedures: Understand the legal process and requirements for evicting a tenant, should it ever become necessary.
-
-
-
-13. Regular Communication: Keeping an open line of communication with tenants helps address concerns early and maintain a positive landlord-tenant relationship.
-
-
-
-14. Move-In/Move-Out Checklist: A detailed list for inspections when tenants move in or out, ensuring any damage or changes are noted and addressed.
-
-
-
-15. Inventory List: If the property is furnished, maintain a list of items and their conditions.
-
-
-
-16. Safety Protocols: Ensure that smoke detectors, carbon monoxide detectors, fire extinguishers, and any security systems are in place and regularly checked.
-
-
-
-17. Pest Control: Periodic inspections and treatments to prevent infestations.
-
-
-
-18. Cash reserves: A financial cushion for unexpected repairs or vacancies.
-
-
-
-19. Marketing Strategy: A plan for advertising the property, conducting showings, and drawing in potential tenants.
-
-
-
-20. Tenant Welcome Pack: A package that provides new tenants with essential information about the property, local amenities, emergency contacts, etc.
-
-
-
-
-
-
-21. Property Management Software: Useful for streamlining various tasks, from rent collection to maintenance requests.
-
-
-
-22. Updates on Market Rates: Regularly check local rental rates to ensure your property remains competitively priced.
-
-
-
-All these costs add up
-
-
-
-Most professional investors have a rule of thumb to calculate all these costs:
-
-
-
-40%-55% of rental income
-
-
-
-Over the long run, that’s what it cost to hold a rental, 40% of the rental income. 
-
-
-
-So if you’re getting $2,000 a month in rental income, deducting $800 and depositing it to a separate bank account is a good idea. 
-
-
-
-If not… you’ll end up with no cash when you need it. 
-
-
-
-## Do you have the cash flow? 
-
-
-
-As you can see.. 
-
-
-
-You need to make sure you have the cash flow from the beginning to rent a property. 
-
-
-
-If a property rents for $2,000… 
-
-
-
-And the mortgage is $1,500… 
-
-
-
-According to the typical 40% budget rule of thumb… 
-
-
-
-You’ll end up with a: 
-
-
-
-NEGATIVE $300 in cash flow. 
-
-
-
-Meaning, you’ll have to pay out of pocket, $300 a month to support this property. 
-
-
-
-This is why most new landlords end up selling a property after 2-3 years. 
-
-
-
-They’re broke and don’t have the cash for unexpected repairs. 
-
-
-
-## How to find GREAT Tenants
-
-Tenants are providing your cash flow. 
-
-
-
-So it’s CRUCIAL to have a system of marketing and screening for quality tenants. 
-
-
-
-(NOTE: Make sure you consult with a real estate attorney to understand the tenants laws)
-
-
-
-1. Location is the number factor -- If your rental is in a neighborhood where the majority of houses have tenants… than it’s most likely going to bring less quality tenants (tenants that don’t care about your property) 
-
-
-2. Have an iron-clad contract -- and make sure that the tenants read and understand everything. You want to highlight what’s expected of the tenant (and expected and not expected of you)
-
-
-3. Market your property in multiple ways -- Don’t just put up a craigslist ad (that’s probably the wrong location to attract quality tenants). Put up a listing on Zillow and Redfin (and every other “Realtor listing” site). Pay a flat fee to the MLS for a listing. Put up a sign. Have an in your local newspaper. Tell agents and realtors (they do expect a commission for bringing you a tenant). 
-
-
-4. Take great photos but don’t fool -- Pictures that don’t “speak” the truth about the property will disappoint tenants. There are pictures that say  “WOW!!!” but when to visit the property is the exact opposite. Make sure the pictures communicate the full essence of the property in a truthful way. 
-
-
-5. Be organized -- Don’t be a hot mess. Keep your documents in one place. Keep track of routine maintenance. Don’t let a property deteriorate. This is crucial for finding a quality tenant: a good, clean, organized landlord.
-
-
-### Want a cash offer instead?
-
-### We’ll give you a hassle free offer (even with tenants in the house) this week!
-
-### Give us a call/text: (909) 328-6337
 
 
 
