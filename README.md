@@ -1,278 +1,482 @@
-# Selling a property in probate
+# How to rent out an inherited property
 
 
 
-If you’re fully on board selling a property or your on the fence of whether or not to do it… 
+Alright so you’re excited about being a new landlord. 
 
 
 
-… let’s go ahead and unravel this process to make your decision easier. 
+You just inherited property… or you’re about while your property is in Probate (see our homeowners guide on probate)... 
 
 
 
-First off, In our “Probate property guide” found here, you’ll find a homeowner's guide to the probate process across various states. 
+We’re going to dive into tips, benefits and warnings of being a new landlord — whether your inherited property is in Florida, Texas, California, or anywhere across the country.… 
 
 
 
-And in it we talk about why someone might want to sell the property. 
+## Why Rent a property? 
 
 
 
-So let’s start with that section
+If the property in question is still in Probate and you have the cash to pay for the process (if you don’t you might have to consider selling to pay for it), then renting is a very viable option if you’re up to it. 
 
 
 
-## Why sell a property in Probate? 
+### Mainly for three reasons:
 
 
 
-We've all been there: standing at the crossroads, wondering which path to choose. The decision to sell a property in probate, much like any substantial decision in life, brings its own set of unique advantages. Let’s tread slowly through this avenue, exploring the facets that make selling in probate not just an option, but possibly a lifeline in certain situations.
+1. A second stream of income
 
 
+2. Possible appreciation and wealth
 
-1. Wiping the Debt Slate Clean
 
 
-When the deceased owner leaves behind debts, it can be a distressing burden for the heirs. Selling a property in probate becomes a silver lining here. By putting the property up for sale, you get an opportunity to settle these outstanding debts. You're not just liquidating assets; you're reclaiming peace of mind.
+3. Pass down an asset
 
 
 
-2. Bypassing the Landlord Hustle
+Let’s dive into each one of these and see if it’s worth it for you
 
 
-Renting a house can sometimes be a huge headache depending on the area and how far you’re from the property -- see our “renting/landlord guide” here
 
+## Is there any Cash Flow from renting out? 
 
 
- If your inherited property comes with tenants, you've unwittingly become a landlord. But what if that's not the hat you want to wear? Selling the property can be an elegant exit from the landlord lifestyle. It's a chance to hand over the keys to someone who's genuinely enthusiastic about playing that role, while you walk away with cash in hand.
 
+A common mistake people make is thinking: 
 
 
-3. Covering Probate Costs With Ease
 
+Cash flow = Rent income - Mortgage 
 
-Probate can be long, complex, and yes, costly. Legal fees, court costs, appraisal charges, and the list goes on. Here's the twist: selling the probate property can essentially mean the estate pays for itself. 
 
 
+This is far from the truth. 
 
-The funds from the sale can cover the costs tied to the probate process.
 
 
+The real formula for cash flow is: 
 
- It's like a self-fulfilling financial cycle, turning the process from daunting to doable.
 
 
+Cash Flow = 
 
 
-## Can You Sell During Probate?
 
+Rent Income - Mortgage - Maintenance - Capital expenditure - Property management
 
 
-Absolutely, you can. 
 
+That’s the true formula for cash flow. 
 
 
-But there's a catch.
 
+And MANY new landlords make this mistake of buying property and then end up being completely BROKE after something like a water heater breaks. 
 
 
-In most states, if you're thinking of selling a home or other property during probate, you'll need a nod from the courts. 
 
+Then the property starts to deteriorate. 
 
 
-It's the executor or administrator's responsibility to take charge of this sale. 
 
+The costs start piling up.
 
 
-Think of it as needing a green light from the legal system to ensure everything's above board. 
 
+Tenants move out because nothing is being fixed. 
 
 
 
-## The easiest way to get court approval…
+This is 90% of most landlord situations. 
 
-The easiest way for a judge to say “yes” to you selling is by having these two things in place: 
 
 
+All because they were mistaken in believing that they actually have cash flow… 
 
-1. An attorney
-2. An agreement with a buyer
 
 
+When they don’t. 
 
-Having these two things in place will make the probate selling process SIMPLE (as long as there aren’t any other complications like disagreements with heirs, discrepancies in the will, etc). 
 
 
+So rule #1: 
 
 
-## How do you find a buyer that fast? 
 
-Listing a house is uncertain… 
+Make sure there is ENOUGH cash flow. 
 
 
 
-And the hassles of showing it, dealing with the agent, paying the agent the commission, and cleaning/repairing it . 
+Rule #2… 
 
 
+## Properly budget for maintenance and expenditures. 
 
-But if you call us (a professional and trusted homebuyer… we’ll buy it straight from you with no showings, no repairs or cleaning in it…
 
 
+### What type of property maintenance and expenditures?  
 
-In fact… 
 
 
+There are yearly property maintenance you have to do (we’ll list them below), and there are big ticket items you must save for. 
 
-### … You can leave all the unwanted things behind! 
 
 
+Here’s a list of yearly property maintenance that cost you $$ out of pocket: 
 
-### Just give us a call or text below for a quick offer:
 
 
+1. Lighting: You’ll get lots of calls from tenants who can’t replace a light bulb (face in palm)… 
 
-### (909) 328-6337
 
 
+2. Gutter Cleaning: Ensure gutters and downspouts are clear of debris to prevent water damage and foundation problems.
 
 
 
+3. Roof Inspection: Check for loose or missing shingles, leaks, or any other damage that may lead to bigger problems down the line.
 
 
 
+4. Landscaping: Regular mowing, pruning of shrubs, tree trimming, and refreshing mulch. Additionally, consider seasonal tasks like leaf removal in the fall.
 
-## When You Don't Have Money to Pay for Probate
 
 
+5. Pest Control: Schedule periodic inspections for termites, rodents, and other pests. Even if no problems are visible, preventative treatments can be worthwhile.
 
-If you have an attorney (and we can help find you a trusted and experienced probate attorney), and all parties understand that you’re selling the property… 
 
 
+6. HVAC Maintenance: Change air filters regularly and have the system serviced at least once a year to ensure efficiency and longevity.
 
-You can go through the process without paying for upfront costs. 
 
 
+7. Plumbing: Often you get plumbing issues like leaky faucets that have to be corrected. Look for any slow drains, leaky faucets, or toilets that run constantly. Addressing these early can prevent more expensive repairs later.
+8.. Safety Checks:* Regularly test smoke detectors and carbon monoxide detectors, replacing batteries as needed. Ensure fire extinguishers are in working condition
 
-Because the costs will be paid for from the proceeds of the sale. 
 
 
+9. Appliance Maintenance: Often, washers, dryers, water heaters, etc break down. Clean and service appliances like the refrigerator, dishwasher, oven, and washing machines to extend their lifespan.
 
-### So here’s a breakdown of what that looks like: 
 
 
 
-### 1. “Partner” with an Attorney: 
 
-We can help facilitate an attorney to guide you through the probate process. This attorney can assist in ensuring that all legal requirements are met, and the property is adequately prepared for sale.
 
+Budgeting for these tasks ensures you can address issues before they escalate into more significant problems, saving money in the long run. Plus, a well-maintained property is more attractive to current and potential tenants.
 
 
-### 2. Selling the Home: 
 
+### List of capital expenditures: 
 
 
-Once everything is in order, you can then sell the house. The proceeds from the sale can cover the probate costs, ensuring that you aren't out-of-pocket. We offer a streamlined process to buy homes, eliminating the waiting time and challenges that come with traditional market listings.
 
+Capital expenditures (CapEx) are the large, infrequent expenses that landlords should plan for as they relate to the overall improvement or maintenance of the property. These are not your typical monthly or annual operational costs but are essential for keeping the property in its best condition over the long term.
 
-### 3. Transferring Title: 
 
 
+These things below are unavoidable. 
 
-With the help of the attorney and the sale of the home, titleship can be transferred without any hitches, ensuring all assets are correctly distributed as per the decedent's will or state laws.
 
 
+They WILL happen sooner or later and they are PRICEY (A roof is at least $10,000). 
 
-And finally… 
 
 
+### Here's a list of capital expenditures landlords should budget for:
 
-We should complete this with a look of the two methods of selling a property in probate in most states: 
 
 
+1. Roof Replacement: Roofs don't last forever. Depending on the material used, you might need to replace it every 20-30 years, sometimes sooner if there's significant damage.
 
 
 
+2. Window Replacement: Older windows might need replacing to improve energy efficiency and aesthetics.
 
-## Selling a property in Probate: Section 239
 
 
-When you hear "Section 239 Sale," think of it as the express lane. This approach comes from the title 58, section 239 of your state’s rules book. Why's it favored? Because you can bypass continuous court check-ins during the sale. It's almost like having a VIP pass! 
+3. Exterior Siding or Painting: Whether it's replacing siding or repainting the exterior, it's an investment that can both protect and rejuvenate the appearance of a property.
 
 
 
-### Here’s a quick rundown of a Section 239 sale:
+4. HVAC Systems: Furnaces, air conditioning units, and other HVAC components have a finite lifespan, typically around 10-15 years.
 
 
 
-1. Kickstart the probate and earmark a date for the first hearing.
+5. Water Heater Replacement: Most water heaters last between 8-12 years, so you'll need to replace them occasionally.
 
 
-2. At this gathering, the court brings the will into the spotlight (if there is one), pinpoints the rightful heirs and any will-listed beneficiaries, and picks a lead – the personal representative.
 
+6. Plumbing and Electrical Systems: Overhauls or major updates might be needed, especially in older properties that don't meet current codes or standards.
 
-3. Now, this head honcho petitions the court for a thumbs up on the Section 239 Sale. But there's a tiny detail: they need the green light from all heirs and beneficiaries.
 
 
-4. If all parties are singing from the same hymn sheet, the court gives its blessing, and voila! The property can be sold with no extra court supervision.
+7. Flooring Replacement: Whether it's the wear and tear on carpets or damage to hardwood/tile, at some point, you might need a full flooring update.
 
 
 
-### Non-Section 239 Sale
+8. Kitchen Renovations: This could include new countertops, cabinets, sinks, or a complete redesign to modernize the space.
 
 
-This path surfaces when there's no unanimous vote for the Section 239 Sale, or when there’s a hiccup in spotting or reaching out to all involved parties. 
 
+9. Bathroom Renovations: Updating fixtures, tiles, showers, and tubs can enhance property value and appeal.
 
 
-And yep, the court's watching closely.
 
+10. Appliance Replacement: Refrigerators, stoves, dishwashers, and other major appliances will eventually need to be replaced.
 
 
-1. Initiate the probate and circle a date for its maiden hearing.
 
+11. Foundation Repairs: Issues like settling or cracking can sometimes require significant repairs to ensure the structural integrity of the property.
 
 
-2. Here, the court dives into the will (if present), identifies the deceased's legal heirs and any named beneficiaries, and designates a personal representative.
 
+13. Fencing: If the property has fencing, it might need repairs or total replacement after many years of weathering.
 
 
-3. This leader now steps up with a property sale plea. The court then sets its eyes on a hearing date and lets the community know via the local newspaper.
 
+16. **Septic System or Sewer Line Replacement:** If the property isn't connected to a public sewer, septic systems might need major repairs or replacements. Similarly, sewer lines can become damaged or clogged.
 
 
-4. If all’s quiet on the objection front, the court waves its magic wand, sanctioning the sale. But if there’s a hiccup? Brace for some back-and-forths about the property's fate.
 
+When planning for capital expenditures, it's crucial for landlords to set aside funds regularly. This proactive approach ensures that they're financially prepared for these inevitable expenses, helping maintain the property's value and the comfort of its tenants.
 
 
-5. Once the court nods its approval, the sales ad hits the local papers. This period is prime time for the personal rep to welcome offers.
 
+Getting good Property Management. 
 
 
-6. Bagged an offer? It's show-and-tell time in court. And here's a twist: other interested folks can chime in, either raising concerns or upping the offer.
 
+Vacancies will happen (another “budget” you should set aside for -- imagine 2-3 months of having to pay for mortgage out of pocket). 
 
 
-It's clear; the non-239 route demands patience and can stretch over 2-3 months. 
 
+A good property manager (PM) and take the headache off your plate. 
 
 
-So, when diving into such sales, keep the timeline in mind to align everyone's expectations.
 
+The average cost of a PM: 
 
 
-Remember, the probate property journey might seem intricate, but with the right knowledge and a dash of patience, you'll find your way. Safe travels!
 
+5-10% of rental income
 
-## Need help navigating this? 
-## Give us a call below:
-## (909) 328-6337
 
 
+## Managing a rental yourself
 
 
 
-NOTE: we aren’t attorneys… just friendly trusted homebuyers experienced in buying properties in Probate across various states. Please consult a licensed probate attorney. 
+Because most landlords don’t have enough cash flow to pay for a PM, they’ll result in managing the property themselves. 
 
+
+
+Unfortunately this is not an ideal route if you want a rental property to be “handoff”. 
+
+
+
+Many professional investors create their own “property management” companies to manage all their properties. They have the volume of real estate where it makes sense. 
+
+
+
+### Here’s a list of things to consider when managing your own property. 
+
+
+
+1. Proper Legal Contracts: Essential for protecting both the landlord and tenant. This includes a clear and detailed lease agreement, clauses for renewals, and any other relevant contracts.
+
+
+
+2. Property Maintenance Schedule: Regular checks on the property, from annual inspections to seasonal maintenance tasks like gutter cleaning or HVAC servicing.
+
+
+
+3. Rental Deposit Clause: Clearly outline the conditions for security deposit collection, holding, deductions, and returns.
+
+
+
+4. Cleaning Company: Having a reputable cleaning company on standby for turnovers between tenants or for regular deep cleans can be invaluable.
+
+
+
+5. Reliable Network of Contractors: This includes plumbers, electricians, handymen, landscapers, etc., who can attend to issues promptly.
+
+
+
+6. Emergency Contact List: A list of essential contacts for emergencies, including local police, fire department, emergency maintenance services, etc.
+
+
+
+7. Tenant Screening Process: A comprehensive system to vet potential tenants, including background checks, credit reports, and reference checks.
+
+
+
+8. Property Insurance: Ensure that the property has adequate coverage against damage, liability, and potential rental income loss.
+
+
+
+9. Knowledge of Local Laws: Familiarize yourself with local landlord-tenant laws, rental regulations, and fair housing acts to avoid potential legal issues.
+
+
+
+10. Accounting System: A system (software or manual) to track rental income, expenses, and other financial aspects related to the property.
+
+
+
+11. Rent Collection System: Whether it's through online payments, bank transfers, or checks, have a consistent and reliable method for collecting rent.
+
+
+
+12. Eviction Procedures: Understand the legal process and requirements for evicting a tenant, should it ever become necessary.
+
+
+
+13. Regular Communication: Keeping an open line of communication with tenants helps address concerns early and maintain a positive landlord-tenant relationship.
+
+
+
+14. Move-In/Move-Out Checklist: A detailed list for inspections when tenants move in or out, ensuring any damage or changes are noted and addressed.
+
+
+
+15. Inventory List: If the property is furnished, maintain a list of items and their conditions.
+
+
+
+16. Safety Protocols: Ensure that smoke detectors, carbon monoxide detectors, fire extinguishers, and any security systems are in place and regularly checked.
+
+
+
+17. Pest Control: Periodic inspections and treatments to prevent infestations.
+
+
+
+18. Cash reserves: A financial cushion for unexpected repairs or vacancies.
+
+
+
+19. Marketing Strategy: A plan for advertising the property, conducting showings, and drawing in potential tenants.
+
+
+
+20. Tenant Welcome Pack: A package that provides new tenants with essential information about the property, local amenities, emergency contacts, etc.
+
+
+
+
+
+
+21. Property Management Software: Useful for streamlining various tasks, from rent collection to maintenance requests.
+
+
+
+22. Updates on Market Rates: Regularly check local rental rates to ensure your property remains competitively priced.
+
+
+
+All these costs add up
+
+
+
+Most professional investors have a rule of thumb to calculate all these costs:
+
+
+
+40%-55% of rental income
+
+
+
+Over the long run, that’s what it cost to hold a rental, 40% of the rental income. 
+
+
+
+So if you’re getting $2,000 a month in rental income, deducting $800 and depositing it to a separate bank account is a good idea. 
+
+
+
+If not… you’ll end up with no cash when you need it. 
+
+
+
+## Do you have the cash flow? 
+
+
+
+As you can see.. 
+
+
+
+You need to make sure you have the cash flow from the beginning to rent a property. 
+
+
+
+If a property rents for $2,000… 
+
+
+
+And the mortgage is $1,500… 
+
+
+
+According to the typical 40% budget rule of thumb… 
+
+
+
+You’ll end up with a: 
+
+
+
+NEGATIVE $300 in cash flow. 
+
+
+
+Meaning, you’ll have to pay out of pocket, $300 a month to support this property. 
+
+
+
+This is why most new landlords end up selling a property after 2-3 years. 
+
+
+
+They’re broke and don’t have the cash for unexpected repairs. 
+
+
+
+## How to find GREAT Tenants
+
+Tenants are providing your cash flow. 
+
+
+
+So it’s CRUCIAL to have a system of marketing and screening for quality tenants. 
+
+
+
+(NOTE: Make sure you consult with a real estate attorney to understand the tenants laws)
+
+
+
+1. Location is the number factor -- If your rental is in a neighborhood where the majority of houses have tenants… than it’s most likely going to bring less quality tenants (tenants that don’t care about your property) 
+
+
+2. Have an iron-clad contract -- and make sure that the tenants read and understand everything. You want to highlight what’s expected of the tenant (and expected and not expected of you)
+
+
+3. Market your property in multiple ways -- Don’t just put up a craigslist ad (that’s probably the wrong location to attract quality tenants). Put up a listing on Zillow and Redfin (and every other “Realtor listing” site). Pay a flat fee to the MLS for a listing. Put up a sign. Have an in your local newspaper. Tell agents and realtors (they do expect a commission for bringing you a tenant). 
+
+
+4. Take great photos but don’t fool -- Pictures that don’t “speak” the truth about the property will disappoint tenants. There are pictures that say  “WOW!!!” but when to visit the property is the exact opposite. Make sure the pictures communicate the full essence of the property in a truthful way. 
+
+
+5. Be organized -- Don’t be a hot mess. Keep your documents in one place. Keep track of routine maintenance. Don’t let a property deteriorate. This is crucial for finding a quality tenant: a good, clean, organized landlord.
+
+
+### Want a cash offer instead?
+
+### We’ll give you a hassle free offer (even with tenants in the house) this week!
+
+### Give us a call/text: (909) 328-6337
 
 
 
