@@ -1,105 +1,156 @@
-# How to sell a house quickly and hassle-free with tenants
+# How to sell a vacant house for top dollar
 
 
 
 
-You’ve spent years collecting rent, and now you want to sell that property. But there’s a problem! 
+Do you have an unwanted property sitting vacant, “deteriorating” away? 
 
 
 
-The tenants are still inside and you don’t know what to do. 
+Maybe windows have been smashed, the interior trashed, and code enforcement notices are piling up? 
 
 
 
-The good news is you have choices… the bad news is…. You have many choices, which can make decision-making difficult. So, as property owners ourselves we’ve dealt with these kinds of situations. So we’ve written a guide to help you with that decision.  
+In either case, I want to show you how to sell a vacant property quickly and hassle-free -- while still getting the most dollar for its value. 
 
 
 
-Everything from getting the highest price, to what you need to do today to sell. 
+First off, let’s talk about why it’s difficult to sell a vacant house… 
 
 
 
-Let’s get started… 
+Then we’ll transition into some serious liability issues.
 
 
-### As a landlord, you have 3 choices to get your rental sold:
+### Why you can’t sell a vacant house… 
 
 
 
-1. Vacate tenants, remodel, sell retail (Highest price, most hassle, most costly) -- Selling traditionally in the retail market will give you the highest price. However, it comes with a few requirements. 
+If you’ve only been vacant for a couple of months… then you’ll have no issues selling it.
 
-For one, families buying the property to live in it will expect a clean and repair-free house; Very few want a fixer-upper, and very few (if any) want to deal with tenants. To get the highest price for your property you’ll need:
 
-- No tenants when you list
-- Clean and free of clutter 
-- Somewhat updated (see this article on “How to repair a property to sell”)
-- Patience to wait 50 days for a buyer to come. 
 
-*Extra costs: evicting a tenant can be costly in time, money, and patience. If an official eviction is the only way to vacate the property, that can be costly in legal fees and not worth the time. 
+However, the problem exists when you have missing/broken items (even small) where no bank will loan on the house. And if a bank doesn’t loan a property, no traditional buyer can purchase it. 
 
 
-2. Vacate tenants, sell as-is to an investor (Some Hassle, lower price than retail) -- Typically, in real estate, there are a few “price tags” for your home. You have the “as-it-sits price” which is what someone will take for your house with tenants and in the shape, it’s currently in. And there’s the FULL retail price (or “after repair”), which is what is worth when it’s cleaned up, has no tenants, and is completely updated to market standards — see this repair article on what remodel items are worth doing or not.
 
+Here’s a list of “property criteria” that a bank needs to see before lending on it:
 
-3. Sell with tenants, as-is (No hassle, lowest price) -- Some (but not many) will buy the house with the tenants inside. However, this is (typically) the lowest price you can get for the property from most inventors. However, for a small deduction, it frees up a lot of hassle and headaches
 
-However,  there are some investors (like us), that see the value in having tenants in the house and pay a fair price regardless of whether or not there are tenants: call us to find out what we can offer on your property: (909) 328-6337
 
+1. No termites or wood-destroying insects 
+2. No damage to the roof
+3. No damage to the exterior (cracks in walls, beams showing, compromised wall, etc)
+4. No foundation damage
+5. No loose writing
+6. No exposed electrical
+7. All utility functioning properly
+8. Must have safe and reasonable access
+9. The heating system must be operating normally and heat the house properly
+10. No chipping or peeling lead-based paint
+11. Adequate access to crawl spaces and ventilation in crawl spaces
+12. Properly functioning water heater
+13. Access to tap water
+14. No mold or any other health concerns (like animal or human feces)
+15. No safety concerns (like having a steep staircase without handrails)
+16. Must be considered “marketable” (Can it sell? Is it pleasing to buyers?) 
 
 
+If any one of these is “broken”, then can’t get a buyer to get a loan on it until it’s fixed. 
 
 
 
+To figure out beforehand, if you need any crucial items fixed before listing…  then, it’s best to get an inspection done (Usually costs anywhere from $250-$500), so you can get a list of things to tackle. 
 
 
 
-To help you make your decision here are a few extra tidbits of info:
+### Or you can always call your local cash buyers Remedy Home Buyers, to give you a fair cash offer to buy it off your hands as it sits… we love taking on these projects! Just call us at: (909) 328-6337
 
 
 
-1. A good agent/realtor will give you a few options -- Depending on your situation, they may advise you to just sell to an investor. However, you’ll not only get the lowest price but ALSO pay 21000 in commission (that’s the average commission payout in your area.
-If you sell directly to an investor (like us), you’ll pay no commission and no fees. 
 
 
-2. If you have time and patience your best bet is Retail -- if you have nothing but time, consider selling it the traditional way: vacate the property (hopefully they’ll leave with no problem), remodel/update, clean up, and list it with an agent. 
 
-This process will most likely take a couple of months or more (depending on how many updates it needs, then you have the average time it takes to sell a home in your area. See this article on how to prepare a house to sell in your area.
+Liabilities of keeping a vacant house
 
 
 
-3. Know the hidden fees -- Depending on how you sell, you’ll have to pay a huge amount in agent fees and closing costs. So take that into consideration when selling the traditional way. 
 
-At Remedy Home Buyers, we PAY for your closing costs, and you’ll pay no agent fees with us. 
 
 
+Let me encourage you to not let your house sit for too long… 
 
 
 
+You see, right now, in your area and surrounding areas, there are squatters on the lookout for houses like yours. A house they can break into and take shelter in. 
 
 
 
+Then they move their stuff in… they use your toilet (even if it doesn’t flush)... they leave trash… they start fires to warm up… the rodents then follow… 
 
-There’s a huge range of choices to make, but it falls under whether or not your situation allows you to wait, make repairs, and sell retail…. Or just sell to an investor. 
 
 
+All these things pile up. 
 
 
 
+And an overlooked big liability is children getting hurt and their parents suing you because the door was unlocked (I guess the squatters forgot to lock it) 
 
 
 
+I know this sounds like fear-mongering, but it does happen. You see it from time to time in the local news about kids playing in a vacant house and getting hurt. 
 
-To get a fair offer on your property today (with no hidden fees and with or without tenants), give us a call today!  
 
 
+Don’t let a vacant house sit for too long. People move in, repairs pile up, and the house deteriorates. 
 
 
+### How to value a vacant house
 
 
 
+This can be a tough one especially if you’ve got a bit of updates that need to be done, or any bank loan-required items are missing. 
 
 
-Dial (909) 328-6337 for a fair offer today. 
+
+In order to get a value of your house, you need to find similar homes like yours in size and condition that have recently sold in the 6 months to 1 year. But the problem is that a lot of vacant homes (that need work) don’t typically sell in the open market. They sell off-market to investors or family members.
+
+
+
+Just know, that if your property needs work done, the house will be worth significantly less than the updated retail homes selling on the open market. 
+
+
+
+NOTE: check out our article on “how to fix a property and what items are work remodeling”
+
+
+### Who you can sell to
+
+
+
+If your house won’t be able to sell to a traditional buyer (a family looking for a “move-in ready” home), then your only option is an investor. 
+
+
+
+They are usually the only ones willing to fix up a house (sometimes you find a family that loves rehab projects and have the type to fix up their primary residence, but they are rare to find).
+
+
+So with that, you have two choices: 
+
+
+
+1. Sell on the open market waiting for an investor to make an offer — (Investors on the open market typically buy at a big discount AND you still have to pay closing costs and agent fees) 
+
+
+2. Or… Sell it off-market to an investor, without an agent — (there are SOME investors that go directly to the property owner (like us), who’ll make you a fair cash offer with no fees or closing costs attached. 
+
+
+
+### If you’d like to see our cash offer… please don’t hesitate to call us! 
+
+
+
+### Dial (909) 328-6337 today for a Commission-free, repair-free, cash offer! 
 
 
 
